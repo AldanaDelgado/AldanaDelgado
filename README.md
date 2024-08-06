@@ -23,6 +23,6 @@ I am a passionate newly  full stack web developer from Argentina, eager to learn
 
 - **[LinkedIn](https://www.linkedin.com/in/aldana-delgado-4b1040279/)**
 
-## Don't hesitate to contact me if you want to collaborate or just chat about web development!
+## Don't hesitate to contact me if you want to collaborate or just chat about web development or finance!
 
 ## Thanks for visiting my profile, have a good day!
